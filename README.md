@@ -1,1 +1,0 @@
-# imaagenes_Reducidas
